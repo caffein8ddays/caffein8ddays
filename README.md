@@ -12,3 +12,5 @@ if you are proship/profic/darkship &/or support it;
 if you make too many weird/gross jokes , sexual humor etc etc;
 
 if you just generally Lack common sense idont know dude just dont be weird or rude
+
+disrespecting is useless because you will just end up hidden. Lol
