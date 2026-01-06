@@ -7,7 +7,7 @@ please WHISPER if u wanna chat because i am offtab 99% of the time so i might mi
 
 DNI!!!!!!!! :
 
-if you are proship/profic/darkship . dont like that stuff;
+if you are proship/profic/darkship &/or support it;
 
 if you make too many weird/gross jokes , sexual humor etc etc;
 
