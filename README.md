@@ -5,7 +5,7 @@
 <sup> hi this is a ponytown thing ignore if youre not from ponytown </sup>
 
 <p align="center">
-please whisper 2 int because im oftentimes offtab !!! i might not see u if otherwise</br> 
+please whisper 2 int because im oftentimes offtab !!! i might not see u if otherwise lol</br> 
 . . . also be warned i am downright TERRIBLE in socializing , sorry if it gets awkward -_-" </p> 
 <p align="center"> (i would rather not be talked 2 long-term if im already with someone though) </p>
 
