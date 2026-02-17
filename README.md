@@ -2,9 +2,6 @@
 <img width="455" height="25" alt="image" src="https://github.com/user-attachments/assets/d70681dc-654b-4076-a00f-e147f10781f2" />
 
 <p align="center">
-<sup> hi this is a ponytown thing ignore if youre not from ponytown </sup>
-
-<p align="center">
 please whisper 2 int because im oftentimes offtab lol</br> 
 . . . be warned i am downright TERRIBLE in socializing , sorry if it gets awkward -_-" </p> 
 <p align="center"> (i would rather not be talked 2 long-term if im already with someone though) </p>
